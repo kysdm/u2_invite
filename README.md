@@ -8,7 +8,8 @@
 
 [#50942](https://u2.dmhy.org/userdetails.php?id=50942) [发邀地址](https://tieba.baidu.com/p/7277190905?fid=352902&pid=138505573763&red_tag=0397695580#138505573763) [截图](https://github.com/kysdm/u2_invite/blob/main/50942.7z) 入站后15天内保种达3T，并持续一年  
 
+[#50943](https://u2.dmhy.org/userdetails.php?id=50943) [发邀地址](https://tieba.baidu.com/p/7277190905?fid=352902&pid=138505736444&red_tag=0343341638#138505736444) [截图](https://github.com/kysdm/u2_invite/blob/main/50943.7z) 入站后15天内保种达3T，并持续一年  
 
 
 
-https://tieba.baidu.com/p/7277190905?fid=352902&pid=138505736444&red_tag=0343341638#138505736444
+
